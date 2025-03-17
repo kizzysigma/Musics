@@ -1,5 +1,5 @@
 # Duality
-Duality has three musics, and that's what makes it unique for a Slap Battles script.
+Duality has three musics, and Vaporwave is the only music style that fits with it.
 
 › [私のドリトスを失うことはありませんか、私はあなたの赤ちゃんを失うことになります Vaporwave](https://youtu.be/U4n4b476JMw?si=7TuDzLTJ5WDwAP5w)
 
