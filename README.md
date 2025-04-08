@@ -7,7 +7,7 @@ Duality is one of the most used Slap Battles custom gloves, it has unique abilit
 
 › [Ophidian - The Phoenix](https://youtu.be/llBaip0fkBY?si=ZBN4SnqY3nw33kI2)
 
-![image alt](https://cdn.discordapp.com/attachments/1274431331111010324/1351171442410000494/hX87JLFw.jpg?ex=67d967f7&is=67d81677&hm=b39624e2f0c576a588eb1aab5de81b4636eccda2d402549ae68cdd899cef6967&)
+![image alt](https://cdn.discordapp.com/attachments/1170782627503034535/1359147096078549224/C5E6hMZr.jpg?ex=67f66bdf&is=67f51a5f&hm=13feb7a297a142e58fd88f066e0d1266da364b5cd4dc3dab1c5771b7a8e7a858&)
 
 
 # Crystallized
