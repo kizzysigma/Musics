@@ -7,7 +7,7 @@ Duality is one of the most used Slap Battles custom gloves, it has unique abilit
 
 › [Ophidian - The Phoenix](https://youtu.be/llBaip0fkBY?si=ZBN4SnqY3nw33kI2)
 
-![image alt](https://cdn.discordapp.com/attachments/1170782627503034535/1359147096078549224/C5E6hMZr.jpg?ex=67f66bdf&is=67f51a5f&hm=13feb7a297a142e58fd88f066e0d1266da364b5cd4dc3dab1c5771b7a8e7a858&)
+![image alt](https://cdn.discordapp.com/attachments/1355192192364449983/1355192193547112470/Picsart_25-03-28_11-45-50-638.png?ex=67fdc955&is=67fc77d5&hm=d1e7f42c14ca631f18ab98e833db3c006320a7e4212e7391b1a3b5440d37f01b&)
 
 
 # Crystallized
@@ -21,4 +21,4 @@ Crystallized is by far one of the best scripts i've ever made, i love using it a
 
 › [Oh Alice - Alice in Wonderland](https://youtu.be/yPjlCza7JHI?feature=shared)
 
-![image alt](https://cdn.discordapp.com/attachments/1274431331111010324/1355703891072913589/PTJqtjyp.jpg?ex=67e9e523&is=67e893a3&hm=ed01894de2b5b3f5bc450f6b909edc08cf657efcc5394fb6736562832bb22f95&)
+![image alt](https://cdn.discordapp.com/attachments/1356228354864451696/1356228355229483108/downloadfile.webp?ex=67fe4295&is=67fcf115&hm=b18f409e1aa97b2be0fc56cdabfa22eba75348a98ad958c331b9eb0bf54fa9b0&)
