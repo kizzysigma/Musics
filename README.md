@@ -19,4 +19,4 @@ Crystallized is by far one of the best scripts i've ever made, i love using it a
 
 › [Tears of My Loved Ones](https://youtu.be/YidRn1w9SH8?si=dQyO6jOM_GO7pZ1X)
 
-![image alt](https://cdn.discordapp.com/attachments/1356228354864451696/1356228355229483108/downloadfile.webp?ex=67fe4295&is=67fcf115&hm=b18f409e1aa97b2be0fc56cdabfa22eba75348a98ad958c331b9eb0bf54fa9b0&)
+![image alt](https://cdn.discordapp.com/attachments/1356228354864451696/1356228355229483108/downloadfile.webp?ex=68038895&is=68023715&hm=85e9ee09f98079813b3030370f78ada762a8baf9add7acc78c0f6e869394ebaa&)
